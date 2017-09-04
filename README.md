@@ -12,5 +12,6 @@ go go go
 
 odin go
 
+So,where to go?
 
 2017.9.4
