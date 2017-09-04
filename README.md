@@ -14,4 +14,6 @@ odin go
 
 So,where to go?
 
+go to find life meaning.
+
 2017.9.4
