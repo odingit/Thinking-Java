@@ -25,4 +25,7 @@ So jiayouba
 
 The most important thing is
 
+
+Be Brave!!
+
 2017.9.4
