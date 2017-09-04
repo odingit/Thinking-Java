@@ -10,5 +10,7 @@ Start studing Java,hhh.
 
 go go go
 
+odin go
+
 
 2017.9.4
