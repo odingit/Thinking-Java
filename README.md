@@ -3,8 +3,29 @@ Thinking Java study experience
 
 
 
+2.I want to study java very well.
+
+
 Start studing Java,hhh.
 
-Test DEV branch.
+go go go
+
+odin go
+
+So,where to go?
+
+go to find life meaning.
+
+hhh,you will.
+
+
+hhh,yeah,I will
+
+So jiayouba
+
+The most important thing is
+
+
+Be Brave!!
 
 2017.9.4
